@@ -2,13 +2,5 @@ This is first Git Demo repository...
 
 
 name:- Rahul Kamble
-Email:- jsjdjdsfh@jdjfd.com
+Email:- jsjdjdsfh@gmail.com
 
-
-hdhhjbfhjkjlfjjkfjljdf kkjh jhfjhhjkksjfjdj 
-jfjkeiiopwej5153jijijkskksaodks
-
-
-hello............RK
-
-gsgadgghjshj
